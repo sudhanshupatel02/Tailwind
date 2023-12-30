@@ -1,0 +1,8 @@
+![Screenshot 2023-12-30 182333](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/2770670c-0ddc-4666-b5d3-f9db9d3b4183)
+![Screenshot 2023-12-30 182411](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/41b9601d-7b46-4cc5-8082-421f58f89b74)
+![Screenshot 2023-12-30 182855](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/a4469add-6c9e-4cd6-8499-872810f1b31a)
+![Screenshot 2023-12-30 182924](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/12074137-d2cf-4164-baf7-05026886141b)
+![Screenshot 2023-12-30 183027](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/c49384e4-a230-449c-aee8-d25f8c3e318e)
+![Screenshot 2023-12-30 183054](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/f0357aff-819d-46c6-8c38-c4bce53f8541)
+![Screenshot 2023-12-30 183116](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/b3d3764f-bb2e-4ca1-bcfc-bcd05ceaed63)
+![Screenshot 2023-12-30 183135](https://github.com/sudhanshupatel02/Tailwind/assets/112975449/dea6fe43-2e3a-484f-bef2-c65599ce60e3)
